@@ -1,1 +1,1 @@
-# EasyNV
+📧: samueladi@icloud.com
